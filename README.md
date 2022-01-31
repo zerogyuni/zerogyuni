@@ -6,7 +6,7 @@
 
 🏢  I'm currently working at Tosslab, Inc.°  
 🌱  I’m currently learning Guitar🎸  
-😉  I'm currently enjoy taking pictures 📸, hiking ⛰, freediving 🤿, gym 💪  
+😉  I'm currently enjoy taking pictures 📸, hiking ⛰, freediving 🤿, gym 💪, camping ⛺️
 💬  I like to talk about Architecture and I like to learn  
 📫  Ask me anything on my issues page  
 💻  Connect with me on LinkedIn  
